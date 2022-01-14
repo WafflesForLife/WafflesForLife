@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @WafflesForLife AKA WAFFLES
+- 👀 I’m interested in anime and exc.
+- 🌱 I’m currently learning Japanese
+- 📫 reach me at WAFFLEGARDEN@outlook.COM
